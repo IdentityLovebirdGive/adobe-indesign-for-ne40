@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe InDesign for macOS with vip Adobe InDesign for macOS Template | vector tools + version history, the #1 template. Includes vector tools and version history for a
 
 
 
